@@ -1,1 +1,1 @@
-I create.
+3 y.o crypto researcher.
